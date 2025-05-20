@@ -7,7 +7,7 @@
 - Social Media & Performance Marketing (Meta, Google Ads)
 - E-commerce Consulting for Indian Retailers
 
-📧 Reach us: [hello@vilxar.com](mailto:hello@vilxar.com)  
+📧 Reach us: [vilxardigital@gmail.com](mailto:vilxardigital@gmail.com)  
 📸 Instagram: [@vilxar](https://instagram.com/vilxar)
 
 ---
